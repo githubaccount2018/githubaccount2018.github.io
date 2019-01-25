@@ -1,1 +1,1 @@
-# githubaccount2018.github.io
+Go Away
